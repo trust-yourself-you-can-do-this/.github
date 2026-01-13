@@ -1,1 +1,3 @@
-# .github
+# *You Can Do This – Trust Yourself, Rise Higher, Own Your World*
+## *Discover life-changing spiritual and motivational teachings on self-trust and confidence inspired by Shi Heng Yi. Learn how trusting yourself helps you rise higher and truly own your world.* [More details…](https://spiritualkhazaana.com/web-stories/you-can-do-this-trust-yourself/)
+## #youcandothis #trustyourself #trustyourselfquotes #motivationalspiritualmessage #youcandothisaffirmation #risehighermindset #ownyourpower #inspirationaldailyreminder #overcome selfdoubt #spiritualmotivation2026 #shihengyimotivation #selfconfidencetips #spiritualgrowth #trustyourself #empowermentforwomen
